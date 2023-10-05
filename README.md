@@ -12,3 +12,59 @@ American Democrat homosexuals are preaching to your children that god in the Bib
 American Democrats are a mixture of religious and non religious peoples.
 
 They believe that god has NO GENDER.
+
+
+
+LGBT destruction of evildoers;
+
+This Tweet spells the utter doom for LGBT rights in America.
+
+If you continue to read this you do so at your own peril.
+
+Anyone who sets upon these words will know the death of this movement has come.
+
+Turn away if you can!
+
+!…!
+
+LBGT+kids is a Christian religion variant for homosexuals.
+
+They are preaching to love homosexual Jesus Christ in American Democrat controlled public schools.
+
+American Democrat homosexuals are preaching to your children that god in the Bible hates homosexuals.
+
+American Democrats are a mixture of religious and non religious peoples.
+
+The core and foundation of all LGB T+kids is homosexual religious propaganda.
+
+They believe that god has NO GENDER.
+
+They believe that the Bible is evil, should not be taught in school, and that Jesus Christ loves all homosexuals but hates heterosexuals who are not homosexual or rather they put it like this:
+
+Jesus Christ loves everyone except for heterosexual children and adults who will not accept PRIDE homosexuality, in school and … in bed.
+
+Trans is evidence that homosexuality can be taught and even made into an abomination which mutilates children in the name of god in favor of confusion over sexuality.
+
+Republicans had nothing to do with this movement.
+
+Republicans have despised this movement.
+
+For opposing this obvious New Democrat religion, they have been labeled sexual haters.
+
+Republicans are not haters of sexuality.
+
+Elvis Presley was Republican, before the CIA turned him into a weirdo and killed him.
+
+Something disgusting happened in the 1960s and it was murder.
+
+Democrat public schools are teaching Christianity homosexuality in schools and they bad mouth the churches that tell the truth about the Bible.
+
+Democrat controlled school systems do not teach civil war history.
+
+Democrat school systems are drugging kids and forcing them to accept homosexuality with the threat of hell and burning in hell for their entires lives.
+
+Love is love means homosexual Jesus is love.
+
+Love still means love. But they will never teach love in these retarded schools run by your retarded mothers.
+
+They will however force your children to worship Gay Jesus.
