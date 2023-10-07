@@ -1,6 +1,30 @@
 # gates-closetgate
 Gates
 
+problem: lgbt worships jesus christ and uses the bible to teach live is love.
+
+solution: lgbt will use images of the leprechaun to market their services.
+
+
+problem: lgbt has no religious book; they do not swear on the bible
+
+solution: need books
+
+problem: homosexuals need a god to worship that is not jesus christ.
+
+solition: homosexuals can worship the leprechaun or the feathered and colorful serpent of latino ancient Mayan legend.
+
+problem: all homosexuals can utilize lying about their sexuality to even the closest friends and family; they lie.
+
+solution: liars are like snakes.
+
+problem: do homosexuals lie more frequently who hide in the closet?
+
+problem: do homosexuals lie less who are out of the homosexual closet?
+
+science study...
+
+-------
 Do you think I kill it too much?
 
 These points of mine are so deadly in court.
