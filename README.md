@@ -1,7 +1,7 @@
 # gates-closetgate
 Gates
 
-problem: lgbt worships jesus christ and uses the bible to teach live is love.
+problem: lgbt worships jesus christ and uses the bible to teach love is love.
 
 solution: lgbt will use images of the leprechaun to market their services.
 
